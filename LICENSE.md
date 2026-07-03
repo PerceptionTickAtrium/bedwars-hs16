@@ -1,4 +1,4 @@
-#  
+#  stealth bedwars Scripts is the best bedwars Script, featuring speed and auto-heal. Safe and powerful for all your needs.
 
 
 
